@@ -1,2 +1,2 @@
-# Betpublic 🎖️
+# Betpublic ⭐
 ### Betpublic, geniş bahis seçenekleri ve yüksek kazanç fırsatları ile spor bahisleri dünyasında dikkat çeken bir platformdur. Futbol, basketbol ve tenis gibi popüler branşlarda avantajlı oranlar sunan Betpublic, canlı bahis ve casino oyunlarıyla kullanıcılarına farklı oyun seçenekleri sağlar. Hızlı ödeme yöntemleri ve özel promosyonlarıyla kazançlı bir bahis deneyimi yaşamak isteyenler için ideal bir tercihtir.
